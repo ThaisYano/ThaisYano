@@ -6,6 +6,6 @@ _15y_ ✨
 
 (-) Cambé pr 
 
-!{}(https://tenor.com/pt-BR/view/stars-glitter-falling-transparent-gif-)
+![](https://media.tenor.com/yGH5RwRTBwEAAAAj/stars-glitter.gif) 
 
 
